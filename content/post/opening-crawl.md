@@ -1,5 +1,5 @@
 +++
-title = "opening crawl"
+title = "Opening Crawl"
 date = "2016-11-02T08:43:34-07:00"
 
 +++
