@@ -20,6 +20,10 @@ Before anyone can say anything the walls begin to rumble and edge toward the Reb
 
 They place poles and long metal beams between the closing walls, but they are simply snapped and bent as the giant trashmasher rumbles on. The situation doesn't look too good.
 
+*Then Captain Phasma is also thrown in the Garbage Masher*
+Do we see this on screen?  
+NO!  It happens off camera, that's the best part!
+
 `LUKE`
 
  Wait a minute!
