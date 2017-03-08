@@ -31,3 +31,11 @@ Anyway, we should be at Alderaan about oh-two-hundred hours.
 `THREEPIO`
 
  I see your point, sir. I suggest a new strategy, Artoo. Let the Wookiee win.
+
+ `ARTOO`
+
+ Holo-Checkmate!
+
+ `CHEWBACCA`
+
+ RAARRRRRR!!!!!!!!
