@@ -66,6 +66,4 @@ The guard aims a blaster at them.
 
 `TROOPER`
 
- All right.
-
-The guard nods and Threepio, with little Artoo in tow, hurries out the door.
+...Wait a minute... these ARE the droid's we've been looking for.
